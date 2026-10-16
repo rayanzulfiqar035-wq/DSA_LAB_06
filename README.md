@@ -18,3 +18,21 @@
 
 ----
 
+# Task 4 :
+
+<img width="513" height="153" alt="image" src="https://github.com/user-attachments/assets/4b0a4b17-a658-46f9-b3d1-9615634b7ea3" />
+
+----
+
+# Task 5 :
+
+-
+
+----
+
+# Task 6 :
+
+-
+
+----
+
