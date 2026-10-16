@@ -10,3 +10,11 @@
 
 <img width="476" height="237" alt="image" src="https://github.com/user-attachments/assets/c4d363e9-cfba-409d-83f2-53360aba71a1" />
 
+----
+
+# Task 3 :
+
+<img width="460" height="69" alt="image" src="https://github.com/user-attachments/assets/916307bd-8192-49bb-a05e-9ae2f7176f62" />
+
+----
+
