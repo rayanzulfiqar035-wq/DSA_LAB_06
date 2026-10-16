@@ -26,13 +26,15 @@
 
 # Task 5 :
 
--
+<img width="935" height="430" alt="image" src="https://github.com/user-attachments/assets/acee7be6-92aa-477e-bc2d-6c5f1e8986ab" />
+
 
 ----
 
 # Task 6 :
 
--
+<img width="948" height="546" alt="image" src="https://github.com/user-attachments/assets/38c01d61-3239-4f60-9b45-a857d8cf8525" />
+
 
 ----
 
